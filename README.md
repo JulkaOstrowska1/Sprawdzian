@@ -1,1 +1,1 @@
-# Sprawdzian
+# Wykonał KOWALSKI
